@@ -1,0 +1,10 @@
+Ordenanza Nº12/2019
+Ordenanza Nº 12/2019
+General Guido, 16/07/2019
+VISTO
+La necesidad de democratizar las campañas electorales y la utilización de soportes publicitarios en los espacios públicos, para dar publicidad a todos los partidos y candidatos durante el desarrollo de las elecciones. El impacto urbano que la desregulación de las campañas y propagandas electorales producen en la ciudad, generando contaminación visual, dificultades de higiene pública, relaciones conflictivas entre los distintos actores políticos y gastos de recursos de la Municipalidad para garantizar la limpieza de la ciudad cuando se concluyen los comicios.
+CONSIDERANDO:
+Que las campañas electorales y el impacto urbano que se genera en torno de ellas muchas veces generan acciones de los partidos y fuerzas políticas que implican la invasión de espacios públicos, generando malestar en muchos vecinos y la pérdida de recursos materiales, operativos y económicos para la Municipalidad.
+Que una reglamentación clara respecto de la utilización de los espacios públicos y visibles, tales como las columnas de iluminación y otras, redunda en una ganancia por parte de partidos y agrupaciones políticas que optimizan sus recursos de difusión gráfica; por parte de la Municipalidad que logra que la estética urbana en épocas de campañas electorales no se vea alterada; y por parte de la ciudad que permite la presencia de todas las expresiones políticas presentes, mejorando su cultura democrática.
+Que es posible generar acuerdos entre los partidos y actores políticos para garantizar reglas de acción consensuadas, mediadas por instancias institucionales que garanticen la equidad y la transparencia respecto de mecanismos de distribución de pautas publicitarias para campañas, que incluso faciliten la llegada de los mensajes de campaña a la comunidad, evitando la superposición y la saturación comunicacional de la estructura urbana, favoreciendo los valores y acuerdos democráticos. Que es importante fomentar en la cultura política de los partidos, la responsabilidad respecto al cuidado de los espacios públicos en el marco de las campañas electorales.
+ORDENANZA
