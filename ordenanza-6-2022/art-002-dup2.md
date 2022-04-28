@@ -1,0 +1,1 @@
+ARTICULO 2º): AFECTASE a la referida operatoria los lotes de terreno ubicados en la Localidad de Labardén, identificados catastralmente como: Circunscripción III, Sección A, Manzana 12, Parcelas 6, 7ª y 8.
