@@ -1,0 +1,10 @@
+Ordenanza Nº13/2026
+Ordenanza Nº 13/2026
+General Guido, 23/06/2026
+VISTO: La necesidad de establecer un piso para el inicio de juicios de apremios por cobro de deudas municipales, y;
+CONSIDERANDO: Que a partir de la sanción de la Ley 13536, que autorizo a las municipalidades a condonar desudas tributarias, cuyas acciones de cobro hallaren prescriptas, se plasmó normativamente lo que el Honorable Tribunal de Cuentas de la provincia de Buenos Aires interpreta históricamente, que los funcionarios que tienen a su cargo la gestión de cobro de recursos municipales deberán ajustarse a las previsiones que al respecto la Ley orgánica de las Municipalidades y reglamentaciones que se dicten en consecuencia.
+Que el inicio de juicios requiere una inversión de dinero (Jus previsional, Bono 8480 y Castas Documentos) que en ocasiones iguala o supera el monto de la deuda, sin garantizar el cobro efectivo de la misma, produciendo una prescripción del crédito fiscal y por lo tanto , un gasto administrativo sin recupero para el municipio.
+Que es fundamental alinearse con la jurisprudencia del Honorable Tribunal de Cuentas de la Provincia de Buenos , el cual expone formalmente la viabilidad de la no iniciación de juicios de apremio cuando su promoción se estime y demuestre técnicamente antieconómica para las arcas municipales.
+Que conforme al análisis de costos realizado en el seno de este dictamen, y en un todo de acuerdo con el Articulo Segundo de la Resolucion de HTC Nº201 que corre agregada a este expediente, se determina que el parámetro financiero optimo para fijar la no obligatoriedad de la acción judicial debe establecerse en el equivalente al sueldo básico de un empleado municipal ingresante de la Categoría 7.
+Que a los efectos de evitar la inacción administrativa y garantizar la interrupción de los plazos de prescripción de las deudas que queden por debajo de dicho piso, resulta indispensable reforzar de manera obligatoria los mecanismos de notificación extrajudicial.
+ORDENANZA
