@@ -1,0 +1,10 @@
+# Ordenanza 10/2022: APRUEBASE, la adjudicación de la Licitación Pública 1/22 “Construcción de 30 Viviendas IVBA Gral. Guido” a la empresa PEMODE S.R.L. que ha cotizado la suma de $ 174.230.500,00 (Pesos ciento setenta y cuatro millones dosc
+
+Ordenanza 10/2022 · 1 versions, from 2022-05-22 (latest in force: 2022-05-22) · <https://sibom.slyt.gba.gob.ar/bulletins/7009/contents/1716399>
+
+| Provision | File | Changes | Last changed |
+| --- | --- | ---: | --- |
+| Artículo 1 | [art-001.md](art-001.md) | 0 |  |
+| Artículo 2 | [art-002.md](art-002.md) | 0 |  |
+| Artículo 3 | [art-003.md](art-003.md) | 0 |  |
+| Encabezado | [encabezado.md](encabezado.md) | 0 |  |
